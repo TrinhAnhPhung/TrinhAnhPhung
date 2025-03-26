@@ -1,11 +1,11 @@
 
 Hi Everyone 👋
 
-💫 About Me
+💫 About Me:
 
 I'm Trịnh Anh Phụng.
 
-Always passionate about new things from the web
+Always passionate about new things from the web.
 
 -----------------------------------------------
 ## 🌐 Socials:
